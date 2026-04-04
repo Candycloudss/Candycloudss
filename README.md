@@ -15,6 +15,7 @@
 - We are plural!! That means we have **horrible** memory and will forget things, we dissociate a lot, and may sometimes forget to respond, we are also dyslexic and struggle with spelling and reading most things so plz be patient with usss!!
 - When I am not using tonetags I usually use emojis to communicate my tone!! :D
 - I’m also very awkward and my social battery is almost always low so calls are definitely not my thing most of the time c:
+- We are pretty timid / shy due to social anxiety (yeah, even online TwT)
 
 ### ⊹ 　﹒   Rentry ^_^　　❀
 - Our rentry is https://rentry.co/Candycloudss
