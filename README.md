@@ -27,3 +27,5 @@
 <p align="center">
   <img src="https://github.com/Candycloudss/Pics/blob/65bab59ddbaf7832b058d4a0067410fcdb7ec59f/Untitled729_20260405160644.png" />
 </p>
+
+<p align="middle"> Art creds to twow09 on twitter :3</p>
