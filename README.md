@@ -22,7 +22,7 @@
 
 ![](https://github.com/Candycloudss/Pics/blob/65bab59ddbaf7832b058d4a0067410fcdb7ec59f/IMG_9499.gif )
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀  [Atabook](https://candycloudss.atabook.org/) 𓏵 [Rentry](https://rentry.co/Candycloudss) ⊹ ࣪ ˖ 　
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀  [Atabook](https://candycloudss.atabook.org/) 𓏵 [Rentry](https://rentry.co/Candycloudss) ⊹ ࣪ ˖ [My disc serv](https://discord.gg/4HHsv5hSrc)
 
 <p align="center">
   <img src="https://github.com/Candycloudss/Pics/blob/65bab59ddbaf7832b058d4a0067410fcdb7ec59f/Untitled729_20260405160644.png" />
