@@ -14,7 +14,7 @@
 
 ![](https://github.com/Candycloudss/Pics/blob/65bab59ddbaf7832b058d4a0067410fcdb7ec59f/IMG_9499.gif)
 
-<p align="middle">﹑　 ཀ 　　﹒ 　Headcount of 40 :3  　　♰</p>
+<p align="middle">﹑　 ཀ 　　﹒ 　Headcount of 38 :3  　　♰</p>
 
 <p align="middle">⤷　　✙　　Can be shy due to social anxiety :')　　♡　◞</p>
 
